@@ -44,4 +44,4 @@ If you're into **product, AI, or just geeking out about cool tech**, hit me up! 
 
 ---
 
-😃 **Thanks for stopping by!** Now back to ~debugging~ building. 🧑‍💻🐛  
+😃 **Thanks for stopping by!**
